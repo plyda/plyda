@@ -1,16 +1,26 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**plyda/plyda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+因为谁也无法保证，这会不会是他们未来人生中最后一顿火锅。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+吃完之后，几人又来到了沐斓的别墅里面。
+
+宰序用他的海边别墅证明了他的诚意，锦晏几人也用这座别墅里的物资表示了对他的认可。
+
+一进门，看到满地狼藉，宰序二话不说就行动了起来。
+
+也是这时候锦晏几人才真正见识到了他的行动力有多强，也清楚地认识到了他的毅力有多坚韧。
+
+“影帝，你除了演员这个身份，不会还有其他什么神秘的身份吧，比如雇佣兵之类的。”周夏试探地问。
+
+
+
+夏夏，你怎么变小了？
+
+锦晏嘟哝了一句还不够，还要上手捏，只是她大概忘了今天干的活太多了，手臂酸软，抬了一下没抬起来。
+
+
+黎冬冷不丁打了个一个寒颤，意识到自己处境不妙，她下意识要往后退，后背却直接撞上了坚硬的车上面。
+http://wanlipiaoxiang.baby
+她退无可退，只能看着男人一步步靠近
